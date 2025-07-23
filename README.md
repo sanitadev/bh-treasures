@@ -6,6 +6,7 @@ BH Treasures is a travel blog dedicated to capturing the true soul of Bosnia and
 From emerald rivers and ancient towns to heartfelt traditions and everyday life in the cities and countryside, BH Treasures brings together stories, visuals, and insights that reflect the authentic identity of this extraordinary country.
 
 🌍 On BH Treasures, you’ll explore:
+
 Cultural heritage and living traditions
 
 Natural beauty in every season
